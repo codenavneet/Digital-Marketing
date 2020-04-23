@@ -1,6 +1,6 @@
  # Notes taken from course on Digital Marketing
   
-  Nowdays, as the hole world is able to get access to internet one method of marketing has grown out popular and
+  Nowdays, as the whole world is able to get access to internet one method of marketing has grown out popular and
   that's digital marketing.
   
   What are the ways in which One can start his online journey of buisness:-
